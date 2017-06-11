@@ -8,3 +8,5 @@
 [2](https://uploadbeta.com/api/pictures/random/?key=UGirl)
 
 [3](https://uploadbeta.com/api/pictures/random/?key=BingEverydayWallpaperPicture)
+
+[r](https://uploadbeta.com/api/pictures/random/) [-](http://imgur.com)
